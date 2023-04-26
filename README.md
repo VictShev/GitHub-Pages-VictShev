@@ -1,17 +1,20 @@
 # Welcome!
 
-My name is Viktoriya
+*My name is Viktoriya.*
 
-! [Photo](https://lh3.google.com/u/0/d/1jPAK-gKCavOfzwN5VftB_2158w4PZbIr=w1318-h652-iv1)
+![11](https://user-images.githubusercontent.com/128597051/234719187-980c4f3a-30c8-4455-a22f-b7dc824215c2.jpg)
 
-*Yeah, that's right. It's me*
+*Yeah, that's right. It's me.*
 
-And this is my cat called Sanya
 
-! [Cat](https://lh3.googleusercontent.com/u/0/drive-viewer/AFGJ81rqXQfXhLGiqXl_i0uwajPU-M8bkhJkLYNSKSTfvQAM2ZESZ3ypNSvhdI1mREW8ndpamr97TUHNKuc4XCu5yrJuR0p_zA=w1318-h652)
 
-You might think that he's angry and not happy 
 
-But it's not like that 
+*And this is my cat called Sanya.*
 
-Actually he's really kind and sweet
+![imgonline-com-ua-Resize-l5pTpzpBu2wz91oM](https://user-images.githubusercontent.com/128597051/234719205-36774aac-7dd6-4a27-8ece-01787c5577fb.jpg)
+
+You might think that he's angry and not happy. 
+
+But it's not like that .
+
+Actually he's really kind and sweet!
